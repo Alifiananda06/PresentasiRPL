@@ -11,3 +11,6 @@
 
 ### YOUTUBE
 #### [KLIK DISINI]()
+
+
+# 감사 합니다 (TERIMAKASIH)
